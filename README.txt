@@ -1,3 +1,5 @@
+https://www.youtube.com/watch?v=Gx_Bz227xXs
+
 ==============================================
   CapitalIQ - How to Run (Windows)
 ==============================================
